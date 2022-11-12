@@ -3,8 +3,12 @@
 **Selamat datang di profile Ngajarin:**
 
 🙋‍♀️ Ngajarin - anak orang?
+
 🌈 Masih kosong?
-👩‍💻 Bakal ditambin?
+
+👩‍💻 Bakal ditambahin?
+
 🍿 Fakta lucu?
+
 🧙 Belum ada?
 
